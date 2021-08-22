@@ -1,3 +1,4 @@
+![2](https://user-images.githubusercontent.com/89316299/130354267-967e31c9-fa5f-44d9-b6e2-daa05e3f5486.jpg)
 - 👋 Hi, I’m @Phitchayapong
 - 👀 I’m interested in new way 
 - 🌱 I’m currently learning iOt
